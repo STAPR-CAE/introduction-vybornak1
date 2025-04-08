@@ -1,0 +1,1 @@
+# muj oblíbený kod
